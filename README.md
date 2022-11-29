@@ -52,3 +52,7 @@ For globalists and multi-nationals alike, the task of achieving a better outcome
 ## Some things we all already agree on
 
 Every word in every language has an antonym and a definition. Therefor following this task is the first goal to truth. Or the first positive commandment, ie. not a "no" / "don't" commandment.
+
+## I would like to clarify after writing this, we want a unanimous VOTE, not "consent" when that is manufactured by those who acquiesce when they think being combative / defensive / argumentative / oppositional would be useless. So it's not the same as a unanimous VOTE
+
+If we all answer as many questions as we can we can look for what has a 100% positive to negative vote ratio. I posted things in the past that have garnered 100% vote ratio in select communities, which means in the greater community it too has been achieveable, by virtue of "definition" and "antonym" which is common across languages, then any form of linguistic / conceptual governance too must have the same notions.
