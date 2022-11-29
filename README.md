@@ -56,3 +56,7 @@ Every word in every language has an antonym and a definition. Therefor following
 ## I would like to clarify after writing this, we want a unanimous VOTE, not "consent" when that is manufactured by those who acquiesce when they think being combative / defensive / argumentative / oppositional would be useless. So it's not the same as a unanimous VOTE
 
 If we all answer as many questions as we can we can look for what has a 100% positive to negative vote ratio. I posted things in the past that have garnered 100% vote ratio in select communities, which means in the greater community it too has been achieveable, by virtue of "definition" and "antonym" which is common across languages, then any form of linguistic / conceptual governance too must have the same notions.
+
+## Many meta-facts are easy to verify and should be easy to achieve unanimous vote on
+
+Things like, "Someone Tweeted this", right? If we can say what was reported and give it a direct quote we will all agree, if we say anything different, the more we try to do something aside from the direct meta fact is just a loss or degrasion of information.
